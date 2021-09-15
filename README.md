@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DeltaTUF
+- 👀 I’m interested in Computer Systems :)
+- 🌱 I’m currently learning about Databases and Multiple programming languages.
+- 💞️ I’m looking to collaborate with another website who has customers that would be interested in the things I sell.
+- 📫 Discord: Delta#7660
